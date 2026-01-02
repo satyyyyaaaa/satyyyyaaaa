@@ -15,7 +15,6 @@
 
 - 📫 How to reach me **satyasamal6878@gmail.com**
 
-- ⚡ Fun fact **I was an Esports Player**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
